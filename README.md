@@ -11,3 +11,5 @@ L'esperimento è questo:
 
 Naturalmente questo non ha nulla di scientifico ma è un modo per riprendere il blog con un post che si aggiornerà fino al 4 dicembre.
 Mi è stato detto che l'hashtag della campagna per il si è #bastaunsi ma come già specificato io sto scaricando solo l'hashtag proposto da twitter, per non squilibrare la cosa ho deciso di non scaricare altri hashtag.
+
+Potete trovare i risultati dell'esperimento sul mio blog [nikileaks](http://nicoprocopio.blogspot.com/2016/11/twitterendum-intro.html)
